@@ -1,2 +1,2 @@
-# Portfolio
-Physics 2
+# PORFOLIO
+Physics 1 and 2
