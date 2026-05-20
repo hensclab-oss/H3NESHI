@@ -3,8 +3,7 @@
 > ⚡ "Faith Over Fear."
 
 • Electronics Engineering Student
-📍 Philippines  
-🎓 Fullbright College  
+🖊 Fullbright College  
 
 ---
 
