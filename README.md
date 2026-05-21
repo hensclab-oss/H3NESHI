@@ -86,9 +86,9 @@ This project highlights the application of technology in modern agriculture by p
 
 ---
 
-# 🌙 Quote
 
-> "Faith Over Fear."
+
+# IN THE BLUR OF LIFE FIND YOUR FOCUS.
 
 
 
